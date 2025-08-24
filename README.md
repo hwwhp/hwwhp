@@ -1,1 +1,1 @@
-[rentry](https://rentry.co/sweetmeds)
+[rentry](https://rentry.co/candibalism)
